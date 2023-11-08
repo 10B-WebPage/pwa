@@ -8,4 +8,4 @@ Conforme el seguía para poder encontrar alguna salida y poder ayudar a sus amig
 
 Pero no contaban con que el Umbra solo quería a uno en específico, que desde que sintió su energía con solo dar una pisada en la entrada de la casa y sentir su energía este espectro estaba seguro de su pasado y presente venganza que quizás por fin de una vez por todas podría llevar a cabo para así poder liberar su alma en pena y así obtener la justicia que nunca se le dio.  
 
-Solo queda dos preguntas lo bastante importantes por resolver, ¿Kenji podrá sobrevivir junto con sus amigos o tendrá que sacrificar las cosas valiosas para salir de ahí con vida? ¿Umbra obtendrá el resultado esperado de su plan? # pwa
+Solo queda dos preguntas lo bastante importantes por resolver, ¿Kenji podrá sobrevivir junto con sus amigos o tendrá que sacrificar las cosas valiosas para salir de ahí con vida? ¿Umbra obtendrá el resultado esperado de su plan?
